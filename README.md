@@ -1,2 +1,3 @@
-- 👋 Hi, I’m @nidayang
-- 👀 I’m interested in everything
+- 👀如果你感到委屈，证明你还有底线 。如果你感到迷茫，证明你还有追求 。如果你感到痛苦，证明你还有力气 。如果你感到绝望，证明你还有希望 。从某种意义上，你永远都不会被打倒，因为你还有你 。 ——送给纠结的你
+-  you will become what you think,so be careful of what you think.
+-  “你到底是有多弱小，才会以炫耀自己的痛苦作为自己的骄傲”——《基督山伯爵》
